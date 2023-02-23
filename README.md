@@ -14,4 +14,3 @@ With his technical expertise and experience, Hyunuk is a valuable addition to an
 - 📫 How to reach me: Request a meeting via [Calendly](https://calendly.com/dev-hyunuk)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love traveling and have traveled around a world!
--->
